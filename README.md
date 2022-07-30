@@ -18,7 +18,7 @@
     
 - 📫 Me puedes contactar en:
 -   dianis070914@gmail.com
--   www.linkedin.com/in/diana-torres-4b33631aa
+-   www.linkedin.com/in/diana-torres-rodríguez-4b33631aa
 
 
 
